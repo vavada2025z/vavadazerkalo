@@ -13,7 +13,7 @@
 Онлайн-казино Вавада (Vavada) — это популярная платформа для любителей азартных игр, которая предлагает широкий выбор игровых автоматов, рулетки, покера, блэкджека и других развлечений. Удобный интерфейс, высокий уровень надежности и регулярные акции делают Вавада одним из лидеров в сфере онлайн-гемблинга.
 
 
-![казино Вавада официальный сайт](https://pilotbaseballacademy.com/how-the-official-vavada-casino-website-is-designed-convenience-navigation-and-design)
+![казино Вавада официальный сайт](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTKidCBnb0C3kGGLiuRE-l7uPpSluCTZq-jfQ&s)
 
 
 ### Официальный сайт казино Вавада
