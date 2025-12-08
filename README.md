@@ -5,7 +5,7 @@
 
 <div style="text-align: center">
   <a href="">
-    <img class="bumbum" style="width: 600px" alt="Static Badge" src="https://img.shields.io/badge/click-Vavada_Casino_Official-orange">
+    <img class="bumbum" style="width: 900px" alt="Static Badge" src="https://img.shields.io/badge/click-Vavada_Casino_Official-orange">
   </a>
 </div>
 
